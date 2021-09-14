@@ -9,4 +9,4 @@
 
 
 # OWO
-Release: soon 40% done 
+Release: When elden rings release.
