@@ -9,4 +9,4 @@
 
 
 # OWO
-Release: When elden rings release.
+Release: Washia Washia  Washia Washia Washia Washia Washia Washia Washia WWWWWWWWWWWWWWWWWWWWWWWWWWWW SCA SCAMBLED SUMMARY
