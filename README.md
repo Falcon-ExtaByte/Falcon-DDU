@@ -10,3 +10,7 @@
 
 # OWO
 Release: Washia Washia  Washia Washia Washia Washia Washia Washia Washia WWWWWWWWWWWWWWWWWWWWWWWWWWWW SCA SCAMBLED SUMMARY
+
+
+# Goals
+dota > league 
